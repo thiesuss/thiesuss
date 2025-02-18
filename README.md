@@ -3,6 +3,6 @@ Life goals:
 - Sell startup to google
 - Make another startup
 - Sell to google again
-- Make fat fucking cash
+- Make fat cash
 - Buy a mattress topper
 - Buy a house with a seperate room for a deep fryer
